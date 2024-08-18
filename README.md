@@ -4,7 +4,7 @@ I'm a passionate software engineer with a focus on designing and developing inno
 
 📫 How to reach me:
 * **Email:** nagarajmohan.mba@gmail.com
-* **LinkedIn:** https://www.linkedin.com/in/nagaraj-mohan(https://www.linkedin.com/in/nagarajmohanindia/)/
+* **LinkedIn:** https://www.linkedin.com/in/nagarajmohanindia/
 
 😄 Pronouns: he/him
 
